@@ -1,2 +1,3 @@
-## hello everyone 
-# and welcome to my channel
+# hello everyone 
+## and welcome to my channel
+---
