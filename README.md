@@ -3,5 +3,4 @@
 ---
 
 
-![amen](https://tsavotrust.org/wp-content/uploads/2024/05/Why-are-elephants-so-big-1-scaled.jpg)
-
+![amen](https://thumbs.dreamstime.com/b/cute-cartoon-girl-scientist-test-tube-science-education-concept-illustration-lab-coat-holding-great-376269712.jpg)
