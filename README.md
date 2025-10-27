@@ -1,4 +1,4 @@
-# hello everyone 
+# Hello Everyone 
 ## and welcome to my channel
 ---
 
