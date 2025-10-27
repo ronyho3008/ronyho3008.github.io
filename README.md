@@ -8,6 +8,4 @@
 
 ##windows
 
-git config --global user.name "ronyho3008"
-git config --global user.email "rony.holdengreber@weizmann.ac.il"
 
