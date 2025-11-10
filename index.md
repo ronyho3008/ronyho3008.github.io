@@ -1,4 +1,5 @@
-# Hello Everyone 
+# Hello Everyone 🌸
+
 ## and welcome to my channel
 ---
 My name is Rony and unlike the picture I chose, I actually have curly hair
